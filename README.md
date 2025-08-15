@@ -1,6 +1,6 @@
 30th July 2025 
 ## My first day at college starts with path and kirtan in college's Gurdwara sahib,the whole atmosphere was filled with positivity. After that all the students went to hostel number 2 and had breakfast there.Then following our schedule we all went to auditorium, where principal sir congratulated and encouraged all the students for their new journey towards their career.Then the president of Nankana sahib education trust Mr.Maheshinder Singh guided us to perform well in college.Then after lunch break the professors of our civil engineering department gave us a tour of all the labs and informed us about their significance and what we are going to learn there in our upcoming college years.So, this was our first day at college.
 
-Day-2
-##1 August 2025 
+#Day-2
+1 August 2025 
 This was our second day in college and our first lecture was given by Priya Darshani mam which was related to universal human values.She tell us that day that what should be the real purpose for which which we are living this life,she raised questions among all of us like,can money or physical facility bring happiness and prosperity to our lives? That day I realised that we are running behind the things that makes no sense with happiness, prosperity and peace of mind.she explained it very well and told all the students to really examine their aspirations from life.Then after the lunch break we all are introduced to the various societies and clubs which are running in the college,their significance,motive, achievements and also their contribution to the society.so, that is how our second day passed in GNDEC.
